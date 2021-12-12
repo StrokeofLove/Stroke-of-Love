@@ -1,2 +1,2 @@
 # Click here to listen ↓
-[Music Link](https://beingleft.github.io/BeingLeft/)
+[Music Link](https://strokeoflove.github.io/Stroke-of-Love/)
